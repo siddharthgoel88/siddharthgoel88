@@ -1,1 +1,1 @@
-Hello world!
+Hey! I would like to call myself a Technology Enthusiast and a Generalist. Currently I am working with Shopee as a Software Engineer. It is a fast growing Singapore based e-commerce (and may be already launched your country?). 
