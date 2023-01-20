@@ -1,1 +1,3 @@
-Hey! I would like to call myself a Technology Enthusiast and a Generalist. Currently I am working with Shopee as a Software Engineer. It is a fast growing Singapore based e-commerce (and may be already launched your country?). 
+Hey there 👋
+
+I am Siddharth. I work in HealthTech space for DoctorAnywhere as a Staff Software Engineer. Buzz me a @siddharthgoel88@techhub.social .
